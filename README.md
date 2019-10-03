@@ -1,2 +1,8 @@
-# zazny.github.io
-Website Game
+#ZEZNY#
+中文自制装B游戏
+内容沙雕而天真
+适合中老
+高智商人群
+快速装逼
+      -你们亲爱的
+        zazny
